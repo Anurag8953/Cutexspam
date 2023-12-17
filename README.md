@@ -2,7 +2,7 @@
   <img src="https://telegra.ph/file/692c17cc052a9249b182a.jpg" alt="RiZoeLXSpam Logo">
 </p>
 <h6 align="center">
-  <b>• SᴘᴀᴍX Bʏ RɪZᴏᴇLX •</b>
+  <b>• SᴘᴀᴍX Bʏ MRCUTEX •</b>
 </h6>
 
 ----
